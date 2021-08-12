@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @syarulzaffi-studentacc
+- 👀 I’m interested in Web and App development
+- 🌱 I’m currently learning Computer Science at Universiti Teknologi MARA
+- 📫 How to reach me through media social
